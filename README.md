@@ -6,5 +6,6 @@ My goal is to frame new problems, fill gaps and push the field, whilst presentin
 Any contributions will get reviewed, hovewer, feel free to pose questions and challenge the work to improve it further.
 
 Youtube: https://www.youtube.com/@mamukich1121
+
 Discord: https://discord.gg/bPAsG9uy
 
